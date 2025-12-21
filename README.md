@@ -32,5 +32,5 @@ Feel free to explore,RECRUITE, or contribute.
 
 ---
 
-##MY Motto
+MY Motto
 "Learning to defend, preparing to protect."
